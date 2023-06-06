@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RosieSanStuffs
+- 👋 Hi, I’m SadCattoGirl
 - 👀 I’m interested in ... horror
 - 🌱 I’m currently learning ... lenguage and maths
 - 💞️ I’m looking to collaborate on ... toby fox
