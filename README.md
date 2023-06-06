@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RosieSanStuffs
-- 👀 I’m interested in ... dogs
-- 🌱 I’m currently learning ... Midis and stuffs
-- 💞️ I’m looking to collaborate on ... Bbpanzu aAAAAAH
-- 📫 How to reach me ... emmm... i dont know.
+- 👀 I’m interested in ... horror
+- 🌱 I’m currently learning ... lenguage and maths
+- 💞️ I’m looking to collaborate on ... toby fox
+- 📫 How to reach me ... emmm... i dont know...
